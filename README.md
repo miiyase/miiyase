@@ -6,4 +6,4 @@
 [2]: https://miiyase.atabook.org/?page=1               "ata"
 [3]: https://en.pronouns.page/@miyase      "pronouns"
 [4]: https://miyasefandoms.straw.page/      "fandoms"
-# ![Image](https://github.com/user-attachments/assets/59a0e7b7-aba3-4529-97a2-f9ddf26a4371)
+# ![Image](https://github.com/user-attachments/assets/53a738e3-926a-4805-840e-b04a90809873)
