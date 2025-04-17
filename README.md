@@ -6,4 +6,7 @@
 [2]: https://yone.atabook.org/?page=1               "ata"
 [3]: https://en.pronouns.page/@miyase      "pronouns"
 [4]: https://miyasefandoms.straw.page/      "fandoms"
-# !![Image](https://github.com/user-attachments/assets/22c26dea-3e94-480c-b9b6-18fa018ed332)
+# ![Image](https://github.com/user-attachments/assets/22c26dea-3e94-480c-b9b6-18fa018ed332)
+
+
+![Image](https://github.com/user-attachments/assets/b5bfcd37-c66e-4d57-8a43-52df67106fe8) 
