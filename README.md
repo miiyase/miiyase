@@ -6,7 +6,7 @@
 [2]: https://yone.atabook.org/?page=1               "ata"
 [3]: https://en.pronouns.page/@miyase      "pronouns"
 [4]: https://rentry.co/miyasesptinfo      "pt info"
-# ![Image](https://github.com/user-attachments/assets/22c26dea-3e94-480c-b9b6-18fa018ed332)
+# ![Image](https://github.com/user-attachments/assets/4108edaf-3ed3-4938-9181-87405cc2606c)
  ‎‎ ‎ ‎
  ‎‎ ‎ ‎
   ‎‎ ‎ ‎
