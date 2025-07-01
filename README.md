@@ -6,11 +6,11 @@
 [2]: https://yone.atabook.org/?page=1               "ata"
 [3]: https://en.pronouns.page/@miyase      "pronouns"
 [4]: https://rentry.co/miyasesptinfo      "pt info"
-# ![Image](https://github.com/user-attachments/assets/4108edaf-3ed3-4938-9181-87405cc2606c)
+[5]: https://fugi.straw.page/      "fandom list"
+[6]: https://thegng.straw.page/      "gang"
+ ![Image](https://github.com/user-attachments/assets/4108edaf-3ed3-4938-9181-87405cc2606c)
  ‎‎ ‎ ‎
- ‎‎ ‎ ‎
-  ‎‎ ‎ ‎
-   ‎‎ ‎ ‎
-# ![Image](https://github.com/user-attachments/assets/b5bfcd37-c66e-4d57-8a43-52df67106fe8) 
-![Image](https://github.com/user-attachments/assets/927fe078-200f-423b-ba73-927cf17d7822)
-![Image](https://github.com/user-attachments/assets/8e796469-d609-4d33-b46e-80e55d7c4fd1)
+ ‎
+
+
+ ‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌‌ ‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌‌ ‌ ‌‌ ‌‌ ‌‌ ‌ ‌ ‌‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌‌ ‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌‌ ‌ ‌‌ ‌‌ ‌‌ ‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌  ‌‌  ‌  ‌ ‌ ‌  ‌‌  ‌ ext - [fandom list][5] & [gang][6]
