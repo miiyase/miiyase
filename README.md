@@ -1,3 +1,2 @@
-![](https://komarev.com/ghpvc/?username=miiyase&color=A2755E&plastic)
+![](https://komarev.com/ghpvc/?username=miiyase&color=CFD4D8&plastic)
 
-editing
